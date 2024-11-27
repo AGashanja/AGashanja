@@ -2,7 +2,7 @@
 - 👀 I’m interested in Molecular Evolution of Plasmids
 - 🌱 I’m currently learning:
 -     1. Biol 160 - Fundamentals of Molecular Evolution
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate
 - 📫 How to reach me agachanja@ifam.uni-kiel.de
 
 
